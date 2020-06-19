@@ -14,4 +14,4 @@ Bud Spencer said:
 > Die hier habe ich immer dabei.
 > Ohne die gehe ich nie aus dem Haus.
 
-<img src="https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.kino.de%2Fwp-content%2Fuploads%2F2016%2F06%2Fbud-spencer-bild-rct500x400u.jpg&imgrefurl=https%3A%2F%2Fwww.kino.de%2Fstar%2Fbud-spencer%2F&tbnid=jvwTV0N5xQYa1M&vet=12ahUKEwjx3fft6I3qAhVWtaQKHbyrAfkQMygFegUIARCBAg..i&docid=BE5yzuMco8U3WM&w=500&h=400&q=bud%20spencer%20bilder&ved=2ahUKEwjx3fft6I3qAhVWtaQKHbyrAfkQMygFegUIARCBAg"/>
+<img src="https://static.kino.de/wp-content/uploads/2016/06/bud-spencer-bild-rct500x400u.jpg"/>
